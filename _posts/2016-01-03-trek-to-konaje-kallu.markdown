@@ -30,7 +30,7 @@ I forgot to mention one more thing. There was a big rock on top of this hill. We
 There was a temple built under that rock. We wanted to go there.
 At this point we saw another group like us going up the hill. We asked them that if there was a way to the temple and they replied positively. After reaching to the route did we realise that we had taken the unconventional route. We went to the top of the hill to the temple.
 
-It was a divine place. Legend says that a sanyasi came here 2000 years ago for a tapas. There is a ‘Vanadurgadevi’ temple. We rested for a while there until we started our descent. We descended down the already available path. We then realised how boring this path was and how amazing our own path was. After we descended few of us wanted to have some cool drinks. We stopped by a stop. We then headed to the main road to catch the bus back to Moodabidri. While travelling back I saw posters in support of a new state of Tulunadu. I felt miserable for having to have a separate state. We had lunch in Moodabidri and left for Surathkal.
+It was a divine place. Legend says that a sanyasi came here 2000 years ago for a tapas. There is a ‘Vanadurgadevi’ temple. We rested for a while there until we started our descent. We descended down the already available path. We then realised how boring this path was and how amazing our own path was. After we descended few of us wanted to have some cool drinks. We stopped by a shop. We then headed to the main road to catch the bus back to Moodabidri. While travelling back I saw posters in support of a new state of Tulunadu. I felt miserable for having to have a separate state. We had lunch in Moodabidri and left for Surathkal.
 
 Total trip cost : Rs. 141.
 
