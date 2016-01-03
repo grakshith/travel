@@ -1,0 +1,12 @@
+# Site settings
+title: Rakshith G
+email: hehaichi@gmail.com
+description: "This blog is about all my experiences of the places I have visited"
+baseurl: ""
+url: "hehaichi.github.io"
+twitter_username: rakshith_g
+github_username:  hehaichi
+facebook_username: hehaichi
+# Build settings
+markdown: kramdown
+permalink: pretty

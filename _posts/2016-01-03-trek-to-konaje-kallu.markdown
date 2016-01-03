@@ -1,0 +1,36 @@
+---
+layout: post
+title:  "Trek to Konaje Kallu"
+date:   2016-01-03 10:18:21
+categories: jekyll update
+---
+
+
+Saturday, 2nd January, 2016. This is the best ever new year party. A party of our own style. The same old mundane day pales in comparison to this one! A party like none before! Even though this is a trek, I would prefer to call it a party. Now when someone asks what I did for the new year, I can proudly say that I went on a trek to Konaaje Kallu.
+
+Yes, you heard it right. Konaaje kallu. It's a hill, 7km from Moodabidri, DK district, Karnataka.
+
+The previous day, I was doubting whether to go this place when Prajwal proposed the idea. Now I can say with a sigh that I made the right decision! 
+
+Me, Aniroodh, Prajwal, Sagar, Amogh, MMV, Belli, Rahul, Pramod, Bhalaki and Bonthala went on the trek. The group of 11 people was pretty big I guess but we had the best time out there! 
+
+We had planned to leave at 7:30 in the morning. When we left, we were 30 minutes behind the schedule. First we went to Kinnigoli from NITK. From there to Moodabidri, all via buses. From Moodabidri we took an auto to the place because of lack of buses. We reached there at about 10:30. The mercury was rising by then. It was hot. The auto driver said there are two routes to the top. We chose one route randomly even without looking at the other. After climbing the hill did we get to know that we had chosen the road not taken. The climb was not an easy one.
+The first stretch was fairly easy. We went up a little and posed for a groupie (group selfie :P). The next stretch was fairly a vertical climb. The hill constituted of igneous rocks which was evident from the texture and the grip it was offering us to climb. We were worried if MMV could make it. 
+We made our way along the rock in this almost vertical stretch, placing our feet in the ridges created by the cooling of the hot lava. All that was running in my mind was that we can somehow climb the vertical patches but coming down was a big big risk. We had to find another way. The descent was impossible in this route. We made it across this stretch and reached flat land. At this point we were lost. If there was a way it was through a dense vegetation. It was a risky venture. But that was the only way. We had barely started the trek and couldn't come back disappointing ourselves. 
+
+I and Aniroodh went first telling others to come only if we were able to find a way from there. All I could see there was thorny branches of small trees. The terrain was not smooth. It was all rocky. One of us cleared the branches while the other progressed further. All the thorns of the branches were stuck to my T-shirt after a while. We finally made it to a flat land where we could rest ourselves. At this point things started going awry. We didn't know where to go next as the land was too steep to climb.
+We were all surprised that MMV was able to make it this far. Again we told people to stay here while we venture out.
+
+Same as before I and Aniroodh went ahead. Pramod also pitched in this time. I could say we climbed a vertical rock. We reached the peak of the hill. We thought we should find a way down so we went exploring. Pramod didn't come with us now as the terrain was dangerous. We saw a downslope and started descending. We reached a point of discontinuity in the hill. We needed to jump onto the adjacent hill. Not a big jump but a small one. We thought that this could be the only exit route.
+
+By this time everyone were done waiting. Prajwal climbed up. Bonthala and Belli also. We climbed back to where Prajwal was. I was tired and dead hungry. I opened my reserve of chocolates. Sugars are the instant source of energy you know. I was re-energized. We headed towards the downslope. This was another one. Not the earlier. Now I could hear all sorts of complaints as to why we had come, in the first place ,to a place like this. Everyone started to blame me and Aniroodh for being too fast and for venturing out alone. If we went anywhere its everybody going or no one. They made it clear. 
+
+I forgot to mention one more thing. There was a big rock on top of this hill. We wanted to go there. We were finding a route to go there. But everyone else were thinking that we were heading for the descent. The group was noisy now. Everyone were shouting. It maybe because that they were tired or that we couldn't find a return path. 
+
+There was a temple built under that rock. We wanted to go there.
+At this point we saw another group like us going up the hill. We asked them that if there was a way to the temple and they replied positively. After reaching to the route did we realise that we had taken the unconventional route. We went to the top of the hill to the temple.
+
+It was a divine place. Legend says that a sanyasi came here 2000 years ago for a tapas. There is a ‘Vanadurgadevi’ temple. We rested for a while there until we started our descent. We descended down the already available path. We then realised how boring this path was and how amazing our own path was. After we descended few of us wanted to have some cool drinks. We stopped by a stop. We then headed to the main road to catch the bus back to Moodabidri. While travelling back I saw posters in support of a new state of Tulunadu. I felt miserable for having to have a separate state. We had lunch in Moodabidri and left for Surathkal.
+
+Total trip cost : Rs. 141.
+

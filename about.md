@@ -1,0 +1,10 @@
+---
+layout: page
+title: About
+permalink: /about/
+---
+
+# Hello!
+I am **Rakshith**. I study Information Technology in NITK, Surathkal. I am in my second semester currently.
+
+I always wanted to write from my childhood. I never did. So, now I'm trying to record all my experiences of all the places I travel to. This blog is dedicated to that.
